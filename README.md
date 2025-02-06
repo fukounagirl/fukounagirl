@@ -11,6 +11,7 @@ i don't really have dni just don't be a weirdoooo!
   - continuation of the previous bullet, if you think trife is proship then um?? DO RESEARCH. EDUCATE YOURSELF. it is just enemies to lovers trope that are completely fine
 
     **OTHER INFO**
+    - sometimes i use a typing quirk (s=zz) and i can stop or provide translation, just don't be rude about it
     - i am trophy. a trophy introject so please don't talk to me plurally/fictive-wise and refer to me as my source.
     - i'd also appreciate if you didn't mention shitty things i've done as i am source attached.
     - if you sign my straw i'd appreciate if you send trife, a drawing of me (trophy) or knife!! :3

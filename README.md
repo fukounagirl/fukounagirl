@@ -9,6 +9,7 @@ i don't really have dni just don't be a weirdoooo!
   - if you sign my straw/ata i will not be afraid to share anything you send unless it's illegal. so don't embarrass yourself
   - UMMM for osc people i ship trife (trophy x knife). just a warning if you int with me and if you don't like it. BLOCK ME!!
   - continuation of the previous bullet, if you think trife is proship then um?? DO RESEARCH. EDUCATE YOURSELF. it is just enemies to lovers trope that are completely fine
+  - also please iwec if you ship knifecase, its a big discomfort for me due to jealousy and source attached memories
 
     **OTHER INFO**
     - sometimes i use a typing quirk (s=zz) and i can stop or provide translation, just don't be rude about it
@@ -17,6 +18,7 @@ i don't really have dni just don't be a weirdoooo!
     - i'd also appreciate if you didn't mention shitty things i've done as i am source attached.
     - if you sign my straw i'd appreciate if you send trife, a drawing of me (trophy) or knife!! :3
     - i am a yumeshipper, selective-sharing with knife IF we are friends/mutuals/oomfs (esp close.) me and knife have been together for 3 (almost 4) years!
+    - I LOVE LOVE LOVE KPOP (not the genre... KPOP stands for knife, pickle, oj, and paper :3)
 
       wip ig i'll ad more soon
 

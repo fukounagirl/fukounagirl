@@ -12,6 +12,7 @@ i don't really have dni just don't be a weirdoooo!
 
     **OTHER INFO**
     - sometimes i use a typing quirk (s=zz) and i can stop or provide translation, just don't be rude about it
+    - i'm a very friendly person meaning if you have c+h/free interactions listed then i'll most likely int, it can be sudden and feel free to tell me back off at any time
     - i am trophy. a trophy introject so please don't talk to me plurally/fictive-wise and refer to me as my source.
     - i'd also appreciate if you didn't mention shitty things i've done as i am source attached.
     - if you sign my straw i'd appreciate if you send trife, a drawing of me (trophy) or knife!! :3

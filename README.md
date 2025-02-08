@@ -6,6 +6,7 @@
 
   
  ***BOUNDARIES***
+ - idm spam followers though i am not one but i will follow you if i think you're cool or if we have talked **!**
  - c+h is completely fine **!** i love cuddling so much
  - i am a very friendly person so i will most likely int **/** c+h with you if stated in your info or name
  - friend request are ok **?** but i prefer if you int with me at least once

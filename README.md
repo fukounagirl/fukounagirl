@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/d12b3e6c-84be-469d-b6a8-a1d4cdcbd9f6)
+![1000019309](https://github.com/user-attachments/assets/e5b746ee-d1f3-4e4d-b32c-e1e12148b91f)
+
 
   *" hello **!** I go by **trophy** or **darling .** **it / its** and **paw / paws** is heavily preferred "*
 	

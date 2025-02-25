@@ -1,4 +1,7 @@
-![1000019309](https://github.com/user-attachments/assets/e5b746ee-d1f3-4e4d-b32c-e1e12148b91f)
+![Screenshot 2025-02-24 2 02 07 AM](https://github.com/user-attachments/assets/0f981148-1176-4274-ac8d-f7c04d84087a)
+
+*image by me*
+
 
 
   *" hello **!** I go by **trophy** or **darling .** **it / its** and **paw / paws** is heavily preferred "*

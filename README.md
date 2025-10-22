@@ -1,4 +1,4 @@
-**whisper to interact** . i'm offtab almost always, so don't expect responds from me ( °ㅁ°) !! ![tumblr_e10729e18355ffb63a9487fbccf654bc_05b707f4_75](https://github.com/user-attachments/assets/0650233a-0140-49ee-bc22-595aeb7bec40)
+**whisper to interact** . i'm offtab almost always, so don't expect responds from me !! ![tumblr_e10729e18355ffb63a9487fbccf654bc_05b707f4_75](https://github.com/user-attachments/assets/0650233a-0140-49ee-bc22-595aeb7bec40)
 
 
 

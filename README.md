@@ -9,4 +9,4 @@
  <img align="center" width="40" height="30" src="https://i.postimg.cc/fWfNZ9Kh/72538783-Gx-Y.png"/>
   <img align="center" width="40" height="30" src="https://i.postimg.cc/qv9Y2JLZ/75007651-Oex.png"/>
 
-${\color{#aba184}{\textsf /ᐠ - ˕ -マ }} \color{#999076}{\textsf{kaveh}} \color{#46354f}{\textsf{he any}}
+Lol thisi s a wip

@@ -16,29 +16,3 @@ ${\color{#decfa3}{\textsf /ᐠ - ˕ -マ}} \color{#717170}{\textsf{kaveh}} \
 ${\color{#717170}{\textsf he ⭑ any}} \color{#decfa3}{\textsf{　꒱　}} \color{#b1a88e}{\textsf{enfp-t }}  \color{#4c505f}{\textsf{eng only}}$
 <br/>
 ${\color{#b1a88e}{\textsf apart}} \color{#decfa3}{\textsf{of the}} \color{#717170}{\textsf{vhs collection!}} \color{#decfa3}{\textsf{ ﹕ ꔫ}}$
-
-
-　
-　
-
-
-
-
-
-
-　
-　
-
-
-
-
-　
-
- 
-
-　
-　
-
-
-　
-<img align="center" width="300" height="300" src="https://i.postimg.cc/Z0tTJ97x/Untitled.png">

@@ -2,7 +2,7 @@
 
 <p align="center"
   
-pmo pmo pmo
+![](https://komarev.com/ghpvc/?username=situationcritical&color=492131&style=plastic&label=blueprints)　 $${\color{#663549} the　ability　to　appreciate　beauty　is　an　important　virtue.}$$ 　( ᐡづ ᆺ◝ᐡ)
 
 </p>
 
@@ -15,17 +15,17 @@ pmo pmo pmo
 
 
 
-　
 
-![](https://komarev.com/ghpvc/?username=situationcritical&color=492131&style=plastic&label=blueprints) ദ്ദി(｡•̀ ᗜ<)
 
-  
+ ㅤ
+ 
 ${\color{#decfa3}{\textsf /ᐠ - ˕ -マ}} \color{#717170}{\textsf{kaveh}} \color{#4c505f}{\textsf{or}}  \color{#717170}{\textsf{kei / kao}}$
 <br/>
 ${\color{#717170}{\textsf he ⭑ any}} \color{#decfa3}{\textsf{　꒱　}} \color{#b1a88e}{\textsf{enfp-t }}  \color{#4c505f}{\textsf{eng only}}$
 <br/>
 ${\color{#b1a88e}{\textsf apart}} \color{#decfa3}{\textsf{of the}} \color{#717170}{\textsf{vhs collection!}} \color{#decfa3}{\textsf{ ﹕ ꔫ}}$
 
+　 [sign atabook](https://kaveh.atabook.org) 　‎✦　 [contact me](https://guns.lol/vhs)
   
 <tr>
 <td>

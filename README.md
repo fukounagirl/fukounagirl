@@ -39,6 +39,9 @@ $${\color{#4c505f} C+HㅤisㅤalwaysㅤencouragedㅤunlessㅤI'mㅤonㅤDNI.}$$
 $${\color{#717170} Pleaseㅤdon'tㅤcopyㅤmyㅤskins; ㅤinspoㅤisㅤokay.}$$
 　　<br>
 $${\color{#4c505f} Usuallyㅤsittingㅤbyㅤdocks, ㅤlibrary, ㅤorㅤatㅤaㅤregi...}$$
+    <br>
+    
+$${\color{#717170} Thankㅤyou}$$ㅤ [pt-walk-of-fame!](https://github.com/pt-walk-of-fame)
 
   </details>
   </td>

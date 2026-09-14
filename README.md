@@ -40,8 +40,17 @@ $${\color{#717170} Pleaseㅤdon'tㅤcopyㅤmyㅤskins; ㅤinspoㅤisㅤokay.}$$
 　　<br>
 $${\color{#4c505f} Usuallyㅤsittingㅤbyㅤdocks, ㅤlibrary, ㅤorㅤatㅤaㅤregi...}$$
     <br>
+
+  </details>
+  </td>
+  </tr>
+  <tr>
+<td>
+  <details>
+<summary>$\color{#964b64}{\textsf{ㅤㅤㅤㅤㅤPTㅤTitlesㅤㅤㅤㅤㅤ}}$</summary>
+    <br>
     
-$${\color{#717170} Thankㅤyou}$$ㅤ [pt-walk-of-fame](https://github.com/pt-walk-of-fame),ㅤ  [pt-players](https://github.com/pt-players)!
+$${\color{#717170} Thankㅤyou}$$ ㅤ [pt-walk-of-fame](https://github.com/pt-walk-of-fame)ㅤ  [pt-players](https://github.com/pt-players)ㅤ  [choco-town](https://github.com/choco-town)ㅤ  [ponytowns-rewards](https://github.com/ponytowns-rewards)...ㅤ♡
 
   </details>
   </td>

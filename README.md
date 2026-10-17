@@ -23,7 +23,7 @@ ${\color{#decfa3}{\textsf /ᐠ - ˕ -マ}} \color{#717170}{\textsf{kaveh}} \
 <br/>
 ${\color{#717170}{\textsf he ⭑ any}} \color{#decfa3}{\textsf{　꒱　}} \color{#b1a88e}{\textsf{enfp-t }}  \color{#4c505f}{\textsf{eng only}}$
 <br/>
-${\color{#b1a88e}{\textsf apart}} \color{#decfa3}{\textsf{of the}} \color{#717170}{\textsf{vhs collection!}} \color{#decfa3}{\textsf{ ﹕ ꔫ}}$
+${\color{#b1a88e}{\textsf apart}} \color{#decfa3}{\textsf{of the}} \color{#717170}{\textsf{video home system!}} \color{#decfa3}{\textsf{ ﹕ ꔫ}}$
 
 　 [sign atabook](https://kaveh.atabook.org) 　‎✦　 [contact me](https://guns.lol/vhs)
   

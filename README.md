@@ -2,5 +2,5 @@
 <div align="left"> ㅤ </div>
 <div align="left"> ㅤ </div>
 <div align="left"> ㅤ </div>
-<p align="left">
+<p align="center">
 $${\color{#decfa3}kaveh}$$ $${\color{#717170}or}$$ $${\color{#4c505f}kei / kao}$$ ㅤ $${\color{#717170}✦}$$ $${\color{#717170}he any}$$ </br>

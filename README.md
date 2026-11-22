@@ -1,4 +1,4 @@
-WIP
+<img src="https://i.postimg.cc/Dwy4dwt4/Untitled165-20261122151616.webp" alt="Header" width="1000">
 
 <p align="center"
   
@@ -7,7 +7,7 @@ WIP
 </p>
 
 
-<p align="center"><img width="400" src="https://i.postimg.cc/GhgxsXQJ/Untitled67-20260326113933.png" alt="kaveh!" align="left" width="400" /></p>
+<p align="center"><img width="400" src="https://i.postimg.cc/brXXRdrM/Untitled166-20261122162151.webp" alt="kaveh!" align="left" width="400" /></p>
 <div align="left"> ㅤ </div>
 <div align="left"> ㅤ </div>
 <div align="left"> ㅤ </div>
@@ -48,4 +48,6 @@ ${\color{#515e62}{\textsf Usually　sitting　by　the　bakery,　docks,　or�
   </details>
   </td>
   </tr>
+
+<img src="https://i.postimg.cc/SKzDfdMZ/Untitled165-20261122151652.webp" alt="Header" width="1000">
 
